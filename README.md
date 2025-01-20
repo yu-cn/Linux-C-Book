@@ -2,7 +2,7 @@
 
 ### 宋劲杉  
 
-*北京亚嵌教育研究中心 <[songjinshan AT akaedu DOT org](mailto:songjinshan AT akaedu DOT org)>*
+*北京亚嵌教育研究中心  <songjinshan AT akaedu DOT org>*
 
 `版权 © 2008, 2009 宋劲杉, 北京亚嵌教育研究中心`
 
